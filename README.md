@@ -1,2 +1,0 @@
-# news
-H O - Hírek
